@@ -1,0 +1,1 @@
+https://github.com/TrueTalentless/slozhno-sosredotochitsya-ad
